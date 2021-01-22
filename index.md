@@ -1,8 +1,2 @@
-## Welcome to Jithin's Webpage
-
-
-
-# Karthik is a very very bad boy
-# Karthik is a very very bad boy
-# Karthik is a very very bad boy
-# Karthik is a very very bad boy
+# Programming Languages
+Hi am @Jithin2312 . Follow my account for updates. 
